@@ -2,7 +2,7 @@
 ## Thủ khoa CNTT K18 (08/2024)
 ![9 thu-khoa](https://github.com/user-attachments/assets/b39841a2-184f-4e88-8e1d-baeefe11d156)
 
-## Tham gia Giải thưởng Sinh Viên Ngiên cứu Khoa học (11/2023)
+## Tham gia Giải thưởng Sinh Viên Nghiên cứu Khoa học (11/2023)
 ![8 nguyen-cuu-khoa-hoc](https://github.com/user-attachments/assets/c16d348b-fdcd-445f-a402-d3f1059bc1bf)
 
 ## Giấy khen (11/2023)
